@@ -15,7 +15,7 @@
 5.What is the disadvantage of Facebook?                                   
 -Apart from being potentially addictive and hampering productivity, the service can make you vulnerable to malware, viruses and even identity theft if you are not careful. Facebook is also known to place a strain on relationships due to how easy it is to connect with people from your past.
 
-6.What is the full meaning of Facebook?                                   -Social networking site
+6.What is the full meaning of Facebook?                                    -Social networking site
 See Facebook. ... FB is defined as an abbreviation for Facebook, a social networking site.
 
 7.Advantages & Disadvantages of Facebook                                  
